@@ -11,7 +11,5 @@
 |13:50-14:40|**good awareness**|Andreas Guldborg Heick<br/>Mette Rytt<br/>Rasmus Jarnborg Friis<br/>Mohammad Omar Salah Hariri|
 |14:50-15:40|**embarrassed ratio**|Thomas Rosenkrans Vestergaard<br/>Kristoffer Oscar Løck Tølbøll<br/>Mikkel Lindtner<br/>Mohammed Omer Ul Haq|
 |21. juni|||
-|8|**fierce extent**|Nikolai Perlt Andersen<br/>Jesper Kronborg Rusbjerg<br/>Adam Lass<br/>Rasmus Helsgaun|
-|9|**disgusted obligation**|Albert Scheel Vandel<br/>Jesper Hingelbjerg<br/>|
-|10|**jittery farmer**|Alexander Wallin Dradrach:ad153|
-|11|**strange topic**|Mads Borre Blinkilde:mb538<br/>|
+|8:30-9:20|**fierce extent**|Nikolai Perlt Andersen<br/>Jesper Kronborg Rusbjerg<br/>Adam Lass<br/>Rasmus Helsgaun|
+|9:30-10:00|**disgusted obligation**|Albert Scheel Vandel<br/>Jesper Hingelbjerg<br/>|
